@@ -5,6 +5,8 @@
 [![YouTube](https://img.shields.io/badge/YouTube-FF0000?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@Noobiekisa)
 [![GitHub](https://img.shields.io/badge/GitHub-181717?style=for-the-badge&logo=github&logoColor=white)](https://github.com/noobiekisamain)
 
+To play this roblox game you have to search
+Fighting game or LuauGenius
 
 
 
